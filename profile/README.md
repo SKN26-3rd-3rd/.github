@@ -1,4 +1,4 @@
-# SKN26 2nd 1st Team
+# SKN26 3rd 3rd Team
 
 
 ---
